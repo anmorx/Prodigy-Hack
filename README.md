@@ -1,7 +1,7 @@
 # Prodigy-Hack
 The best Prodigy Hacks is available for you here. Don't waste your time in other places. You can get all the resources you need without hassle through it.
 
-Just click - https://kiayodo.online/prodigy-too
+Just click - https://kiayodo.online/prodigy-tool
 
 Is that not amazing?
 
